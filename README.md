@@ -1,1 +1,0 @@
-# AntiRikuuCoalition.github.io
